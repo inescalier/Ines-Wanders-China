@@ -1,6 +1,6 @@
 # Il était une fois un petit caillou au milieu de la Chine
 
-![Petit caillou](/inescalier.github.io/assets/Design sans titre (1).png)
+![Petit caillou](/inescalier.github.io/assets/caillou.png)
 
 Ca y est, je suis un petit caillou perdu en Chine. Ca fait un peu bizarre d'être toute seule dans ce grand pays, au milieu d'1,5 milliards de chinois·es qui me regardent bizarrement dans la rue. C'est un vrai truc ça. Depuis que je suis arrivée, il n'y a pas un jour qui soit passé sans qu'un enfant (même des adultes parfois) me fixe, s'approche de moi pour me voir de plus près ou dit à ses parent que je suis une "wàiguórén" (étrangère). Ca se produit tellement que je sais le lire sur les lèvres des enfants quand ils chuchotent. 
 Il y a quelques jours, on était au restaurant, et y'a un enfant qui est venu de derrière moi, a avancé s'est retourné pour me voir et est retourné s'assoeoir. Il a cru qu'il était discret. Et moi je le voyais pas parler à ses amis derrière moi, mais Boris m'a dit qu'il a mimé mes grands yeux à ses copains😯. C'était vraiment très drôle. 
